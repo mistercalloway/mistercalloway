@@ -45,7 +45,7 @@ ${\textsf{\color{#2E80BF}FANDOMS INT ! ♡  Refer to me by my skin name or Cal! 
  
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=6trc256akt6qxye2na1h91y6w&cover_image=true&theme=novatorem&show_offline=false&background_color=ffffff&interchange=false&profanity=false&bar_color=5cb8ff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-[01](https://spacehey.com/mrcalloway) , [02](https://mistercalloway.carrd.co/) , [03](https://en.pronouns.page/@mrcalloway) , [04](https://www.tiktok.com/@mr.call0way/video/7593602233342659895) , [05](https://www.tiktok.com/@mr.call0way/video/7598815505754885407) , [06](https://www.tiktok.com/@slicingupyaprick) , [07](https://www.tiktok.com/@mr.call0way/video/7605737789598043423) , [heheh](https://www.youtube.com/watch?v=z88WWrnROEs&list=RDz88WWrnROEs&start_radio=1)
+[01](https://spacehey.com/mrcalloway) , [02](https://mistercalloway.carrd.co/) , [03](https://en.pronouns.page/@mrcalloway) , [04](https://www.tiktok.com/@mr.call0way/video/7593602233342659895) , [05](https://www.tiktok.com/@mr.call0way/video/7598815505754885407) , [06](https://www.tiktok.com/@slicingupyaprick) , [07](https://www.tiktok.com/@mr.call0way/video/7605737789598043423) , [heheh](https://www.youtube.com/watch?v=FglvPYFNKVI)
 <p align="center"> ${\textsf{\color{#2E80BF}THANKS FOR READING! <3}}$
 
 </p>
