@@ -54,8 +54,6 @@ ${\textsf{\color{#2E80BF}FANDOMS INT ! ♡  Refer to me by my skin name or Cal! 
 </p>
 </div>
 <p align="center"><img width="980" height="260" src=https://64.media.tumblr.com/2322d71a84e9f0788df78965b8c6c600/82033d65025bef6c-9c/s2048x3072/f0c544f39b8170180c711755ff5462038725ac99.pnj />
- />
-">
 </p>
 
 
