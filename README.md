@@ -20,7 +20,7 @@ ${\textsf{\color{#47DAFF}⌣  PLEASE! read my carrd and pronouns page : )  !}}$
 ${\textsf{\color{#2E80BF}FANDOMS INT ! ♡  Refer to me by my skin name or Cal! (Vince for friends only!)}}$ 
 <p align="center">
  <p align="center">
- ${\textsf{\color{#47DAFF}⌣  COOL PEOPLE  ! . . (@thefleshcurtains) (@syIvestre) (@typomaniaccandy)
+ ${\textsf{\color{#47DAFF}⌣  COOL PEOPLE  ! . . (@thefleshcurtains) (@AuthorsDream) (@typomaniaccandy)
 }}$
 <p align="center">
 <p align="center">
